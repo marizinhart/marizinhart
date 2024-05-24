@@ -1,14 +1,19 @@
 **Bem vindo ao meu github**
 
 Meu nome é Mariana Rataieski Moreira💟
+
 Tenho 17 anos
+
 Moro em Nova Laranjeiras - Pr
+
 Sou estudante do novo ensino médio
+
 Status civil: namorando
 
 _contarei um pouco sobre mim_
 
 **Quem sou eu?**
+
 Sou uma esudante que mora em uma cidade um pouco pequena, sou catequeista em minha comidade, sou o tipo de pessoa que se estressa muito facil, sou ansiosa, gosto de ajudaras pessoas no que for preciso.
 
 Minha principais qualidades: Saber dar concelhos, gostar de aprender coisas novas, ter responsabilidade, saber trabalhar em grupo, saber trabalhar solo também entre outros demais fatores.
@@ -18,10 +23,15 @@ Meus defeitos: Ser impaciente, não gostar de barrulho, me irritar facilmente, n
 Meus principais hobbys:
 
 Amo cozinhar🥫
+
 Gosto de jogar futebol⚽
+
 Estudar📘
+
 Conversarcom amigos🧑‍🤝‍🧑
+
 Cuidar de crianças🧒
+
 Matematica🖩
 
 **O que eu quero pro meu futuro?**
