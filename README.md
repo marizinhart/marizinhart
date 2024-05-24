@@ -17,12 +17,12 @@ Meus defeitos: Ser impaciente, não gostar de barrulho, me irritar facilmente, n
 
 Meus principais hobbys:
 
-Amo cozinhar:
-Gosto de jogar futebol:
+Amo cozinhar🥫
+Gosto de jogar futebol⚽
 Estudar📘
-Conversarcom amigos:
-Cuidar de crianças:
-Matematica:
+Conversarcom amigos🧑‍🤝‍🧑
+Cuidar de crianças🧒
+Matematica🖩
 
 **O que eu quero pro meu futuro?**
 
