@@ -37,7 +37,7 @@ Gosto de jogar futebol⚽
 
 Estudar📘
 
-Conversarcom amigos🧑‍🤝‍🧑
+Conversar🧑‍🤝‍🧑
 
 Cuidar de crianças🧒
 
