@@ -47,6 +47,8 @@ Matematica🖩
 
 Eu pretendo fazer uma faculdade de agronomia depois que eu me formar no ensino medio, com o passar do tempo vou fazer poericia parame tornar perita agronoma, meu maior sonho depois disso é ir para o Mato Grosso porque lá irrei ter mais possibilidades de emprego na área que eu quero atuar, ter minha familia e minhas coisas que também é um grande ponto em minha vida, ser independente, construir as coisas com meu próprio esforço.
 
+**OBRIGADA PELA ATENÇÃO**
+
 
 ![](https://media1.tenor.com/m/5BYK-WS0__gAAAAd/cool-fun.gif)
 
