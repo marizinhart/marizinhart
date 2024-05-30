@@ -10,6 +10,14 @@ Sou estudante do novo ensino médio
 
 Status civil: namorando
 
+fone: 42 99952094
+
+Minhas redes:
+
+https://www.instagram.com/mari_moreira57?igsh=cWJ1d244Y2E3Mmgw
+
+https://www.facebook.com/mariana.rataieski?mibextid=ZbWKwL
+
 _contarei um pouco sobre mim_
 
 **Quem sou eu?**
@@ -21,7 +29,7 @@ Minha principais qualidades: Saber dar concelhos, gostar de aprender coisas nova
 
 Meus defeitos: Ser impaciente, não gostar de barrulho, me irritar facilmente, não gostar de ir em festas e algazarras, entres outras coisas.
 
-Meus principais hobbys:
+**Meus principais hobbys:**
 
 Amo cozinhar🥫
 
