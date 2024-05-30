@@ -14,6 +14,7 @@ _contarei um pouco sobre mim_
 
 **Quem sou eu?**
 
+
 Sou uma esudante que mora em uma cidade um pouco pequena, sou catequeista em minha comidade, sou o tipo de pessoa que se estressa muito facil, sou ansiosa, gosto de ajudaras pessoas no que for preciso.
 
 Minha principais qualidades: Saber dar concelhos, gostar de aprender coisas novas, ter responsabilidade, saber trabalhar em grupo, saber trabalhar solo também entre outros demais fatores.
@@ -40,3 +41,12 @@ Eu pretendo fazer uma faculdade de agronomia depois que eu me formar no ensino m
 
 
 ![](https://media1.tenor.com/m/5BYK-WS0__gAAAAd/cool-fun.gif)
+
+
+
+
+
+
+
+
+
